@@ -27,7 +27,7 @@ TODO : add Tensor-Board visualizations .
 >homer_simpson: i'm sorry about the face, moe?
 >moe_szyslak: eh, you got that the way to get here.
 
->homer_simpson: you know, i see you was a cash holiday / 'cause frankly, homer's more more" on the face. what do i think the one just just us out with your sweet who and have >about the treat dog 'cause / i just...
+>homer_simpson: you know, i see you was a cash holiday / 'cause frankly, homer's more more" on the face. what do i think the one just just us out with your sweet who and have about the treat dog 'cause / i just...
 >moe_szyslak:(serious) oh, there is the ball. i can't made a car who get too idea for the most cruel was good by...(sobs)
 >moe_szyslak: and i tell the cover and did was still like business?(gasp) somebody spilled beer in this one stuff to save good.
 
